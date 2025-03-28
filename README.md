@@ -1,1 +1,0 @@
-# nmiastro.github.io
